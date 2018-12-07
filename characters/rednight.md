@@ -1,1 +1,1 @@
-He is the most powerfull wore
+He is the most powerfull commando.
